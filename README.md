@@ -8,7 +8,7 @@ if i follow u on github and u make minecraft mods DM MEEEEEEEE
 
 Milestone: Bypass Steps ✅
 
-Milestone 2: McBe Cheats "0/100"
+Milestone 2: McBe Cheats "5/100" WIP Release 2d 5hrs 
 
 Milestone 3: Mc Cheats "0/100"
 
