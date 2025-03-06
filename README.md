@@ -6,7 +6,7 @@ if i follow u on github and u make minecraft mods DM MEEEEEEEE
 
 --------------------------
 
-milestone: Bypass Steps ✅
+Milestone: Bypass Steps ✅
 
 Milestone 2: McBe Cheats "0/100"
 
