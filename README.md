@@ -1,18 +1,22 @@
-Hi Im Sorrow/Soruful, im 17 new to coding/Not new to BackroundAccessingMemory Gigs, and live in Houston Texas
+Hi Im Sorrow, 17 live in houston texas with my cat
 
-Goal:
+currently am working on producing a line of cheats/software
 
-am planning on working with other people to create some sort of Minecraft Cheats if i follow you on github DM ME!!!!!!
+if i follow u on github and u make minecraft mods DM MEEEEEEEE
 
-[The Whole Stratagey is you work on client own revenue etc. i just wanna be apart of something big ;c]
+--------------------------
 
-learning on how to make it my own so stay tuned!!!
+milestone: Bypass Steps ✅
 
-------------------------------------------------
+Milestone 2: McBe Cheats "0/100"
 
-i suck at socializeing so ya
+Milestone 3: Mc Cheats "0/100"
 
-add me 
+Milestone 4: Fivem Cheats "0/100"
 
-Dc: kimiko
+-----------------------------------
+
+for busienss inquires dms are open
+
+Discord: kimikuko
 
