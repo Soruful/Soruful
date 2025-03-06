@@ -1,4 +1,4 @@
-Hi Im Sorrow, 17 live in houston texas with my cat
+Hi Im Sorrow, 17 live in Houston, Texas with my cat
 
 currently am working on producing a line of cheats/software
 
