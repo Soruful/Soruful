@@ -10,6 +10,8 @@ Milestone: Bypass Steps ✅
 
 Milestone 2: McBe Cheats "5/100" SOMEONE TOLD ME HOW TO FIND IT (CLIENT ABLE TO RELEASE I JUST WANT IT TO LOOK NICE AND HAVE AMAZIN FEATURES)
                                                  CREDIT: github.com/cr0mb/ (its going to be a ghost/legit client for long term leaderboards players)
+
+
 Milestone 3: Mc Cheats "0/100"
 
 Milestone 4: Fivem Cheats "0/100"
